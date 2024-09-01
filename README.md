@@ -1,4 +1,4 @@
-![IMG_4083](https://github.com/user-attachments/assets/8e93942a-135a-4aa1-a753-5a381f330618)# worldbuilding 1
+# worldbuilding 1
 I originally wanted to flesh out an idea for a world/setting but I ended up mostly just drawing varios glider wings and characters. Below I will add a little summary of my ideas and add some of my favorite drawings. 
 
 so my idea was a world where cities were built to extreme heights. This was due to a highly toxic gas that leaked from pockets deep below the earth's crust. Since the gas is denser than air it settled on the earth's surface forcing humans to move upwards (there are also rumors of people who moved downwards instead that still remain in bunkers below the gas but that's another story). The rich and famous live on the top, the rest reside in the so-called "canopy" and need to use gliders to traverse.
